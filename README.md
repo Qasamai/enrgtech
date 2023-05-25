@@ -1,1 +1,2 @@
-# [enrgtech](https://www.enrgtech.co.uk/)
+# [Enrgtech](https://www.enrgtech.co.uk/)
+Enrgtech is a comprehensive electronic components supplier, showcasing products from all major manufacturers globally. They provide an array of components like semiconductors, resistors, and connectors, ensuring customer needs are met for both individual projects and large-scale production. Their commitment to quality and timely delivery makes them a trusted partner in electronics.
